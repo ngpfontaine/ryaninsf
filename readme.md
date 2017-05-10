@@ -8,7 +8,7 @@
 - **L** on 16th
 - Kat'z bagels on **L** side
 - Keep going, then **L** on Dolores
-- 2 blocks to Mission Dolores Park (eat, smoke, beer, wtvr)
+- 2 blocks to Mission Dolores Park (eat, smoke, beer, wtvr. it's crazy on the weekends so enjoy no one there)
 
 ---
 
