@@ -1,4 +1,4 @@
-#### Breakfast & Park
+#### Breakfast & Part in Mission
 
 - Head downhill on my street
 - **L** on Valencia
@@ -12,18 +12,18 @@
 
 ---
 
-#### To Downtown
+#### Union Square & Chinatown
 
 - Head back toward Valencia on **18th**
 - **L** on Mission
 - **16th Bart** Station
 - take North: which is anywhere but SFO/Millbrae
 - 2 stops to **Powell** (Mall, rail-car, stores)
-   - *you could instead the first stop, to **Civic Center** (farmer's market & general riff-raff), then walk to Powell station if you want*
+   - *you could instead the first stop, to **Civic Center** (farmer's market on Wednesday, & general riff-raff), then walk to Powell station if you want*
 
 ---
 
-#### Downtown - Embarcadero
+#### Embarcadero
 
 - Go straight from escalators & take exit to the **R** w/ stairs (**L** takes you into mall)
 - head **N** on Powell (where the Gap & rail-car line is)
@@ -44,6 +44,6 @@
 
 #### North Beach
 
-- take bus **E** or **F**, or a bike rickshaw thing to Pier 39
+- take bus **E** or **F** ($2.50 cash inserted by the driver), or a bike rickshaw thing to Pier 39
 - Tourist shit, sea lions, seafood, battleships at 39 & Fisherman's Wharf (Pier 45)
 - head a few blocks **West** to Maritime National Park to walk around & chill by the water
