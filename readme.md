@@ -1,4 +1,4 @@
-#### Breakfast & Part in Mission
+#### Breakfast & Park in Mission
 
 - Head downhill on my street
 - **L** on Valencia
